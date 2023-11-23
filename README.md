@@ -12,4 +12,6 @@ The dollar vote Republican economists. They can thrive in any system. They have 
 
 The HIPPO Republicans are younger Republicans. Water also represents chaos and monsters of lore.
 
-Let there be elephants, hippopotamus, and rhinos on Earth!
+Let there be elephants E-republicans, hippopotamus H-republicans, giraffe G-republicans, and rhinos R-republicans on Earth!
+
+https://www.youtube.com/watch?v=OOCb1tmx6Mc
